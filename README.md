@@ -16,3 +16,7 @@ vallaha sensiz olmuyor bilirsen
 yapamıyorum hiç gör beni isterim istemezsen
 o kadar hatalar yaptım bwn bir ergen
 fakat bilirim son bir şans verirsin sen
+
+vallahi zekamı çalıştıracağım barışalım
+
+buraya readme yazabilmem bile zekamın snaps yaptığına kanuttır 
